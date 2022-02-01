@@ -1,6 +1,6 @@
 - 👋 Heyy, I’m steffy
 - 🌱 I’m currently learning Python 
-- 💞️ I’m looking to collaborate on anything, i like to be an partnership also.
+- 💞️ I’m looking to collaborate on anything, i like to be in partnership also.
 - 📫 How to reach me: mail: steffy.jk2018@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I spend almost 12 hours listening to songs every day.

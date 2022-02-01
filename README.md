@@ -1,4 +1,4 @@
-- 👋 Hola, I’m steffy
+- 👋 Heyy, I’m steffy
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on anything, i like to be an partnership also.
 - 📫 How to reach me: mail: steffy.jk2018@gmail.com

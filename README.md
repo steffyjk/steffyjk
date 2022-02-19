@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on anything, i like to be in partnership also.
 - 📫 How to reach me: mail: steffy.jk2018@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I spend almost 12 hours listening to songs every day.
+- ⚡ Fun fact: I'll watch any kdrama in one day if i found it interesting.
 
 <!---
 steffyjk/steffyjk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

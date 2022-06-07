@@ -1,6 +1,5 @@
 - 👋 Heyy, I’m steffy
-- 🌱 I’m currently learning Python 
-- 💞️ I’m looking to collaborate on anything, i like to be in partnership also.
+- 🌱 I’m currently learning Python
 - 📫 How to reach me: mail: steffy.jk2018@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I'll watch any kdrama in one day if i found it interesting.
